@@ -28,8 +28,7 @@ Follow Me on Social Media:
 	
 	Mail: rhr3032@yahoo.com
 
-	
-Visit Website: bit.ly/3iPf8iR
+	Visit Website: bit.ly/3iPf8iR
 
 
 
