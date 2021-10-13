@@ -6,11 +6,9 @@ Also expert in,
 	
 	UI/UX Design
 	
-	Graphics Design
-	
 	Motion Graphics and VFX
 	
-	Carton Animation
+	Cartoon & 3D Animation
 	
 	Search Engine Optimization (SEO) 
 
@@ -29,9 +27,9 @@ Follow Me on Social Media:
 	Github: rhr3032
 	
 	Mail: rhr3032@yahoo.com
-	
-	Visit Website: bit.ly/3iPf8iR
 
+	
+Visit Website: bit.ly/3iPf8iR
 
 
 
